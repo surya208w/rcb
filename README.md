@@ -4,10 +4,10 @@
 #### maxwell
 
 
-* king kohli *
+*king kohli*
 
 
-** ab devilars **
+** ab devilliers**
 
 * royal challengers banglore
   * chahal
